@@ -1,3 +1,3 @@
-# hijal.github.io
+http://hijal.github.io
 
 most worst design 
